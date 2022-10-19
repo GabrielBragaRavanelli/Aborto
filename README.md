@@ -1,6 +1,6 @@
 # Aborto
-4° Termo A
-Grupo: 1 
+- 4° Termo A
+- Grupo: 1 
 
 Aborto
 - Em primeiro lugar, devemos saber a definiçâo do tema que será debatido, portanto, segundo a Organizaçâo Mundial da Saúde (OMS), aborto, do Latim ‘ab-ortus’ (privação do nascimento), refere-se à interrupção da gestação com a extração ou expulsão do embrião, ou do feto de até 500 gramas antes do período perinatal (que data entre 22ª semana completa e os 7 dias completos após o nascimento). Agora que já sabemos o conceito, devemos saber a situaçâo do aborto no Brasil, sendo assim, o nosso país faz parte dos paises que possuem legislações restritivas quanto a interrupção da gravidez, prescritas no art. 124 do CP, na qual diz que: Provocar aborto em si mesma ou consentir que outrem lhe provoque - Pena e detençâo, de um a três anos.
